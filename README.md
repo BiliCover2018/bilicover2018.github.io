@@ -1,2 +1,1 @@
-# bilicover.github.io
-email: rqk53562@xoixa.com
+# [返回](https://bilicover.github.io)
